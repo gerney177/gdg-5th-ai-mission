@@ -1,0 +1,1 @@
+https://gerney177.tistory.com/entry/GDG-AI-미션-코스-Week3
